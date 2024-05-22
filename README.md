@@ -9,7 +9,7 @@ Meu nome é Carlos Augusto.
   Você pode entrar em contato comigo 📫
 - 00001114430614sp@al.educacao.sp.gov.br
 - @Carlos
-- ![](https://media1.tenor.com/m/BCDp5OBAJMoAAAAC/solo-leveling.gif)
+- ![](https://media1.tenor.com/m/adsYsVdDmAgAAAAC/solo-leveling-sung-jin-woo.gif)
   
 - 
 -
